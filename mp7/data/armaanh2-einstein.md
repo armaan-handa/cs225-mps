@@ -1,0 +1,10 @@
+ The year is 1918, a 39 year old Albert Einstein walks out of his house to find a very weird looking vehicle in his driveway. When he sits in the driverseat he sees that the vehicle is called a "Delorean". Facinated by this new piece of technology he start playing around with the various buttons and knobs. Suddenly a display turns on and gives him three options, 2018 AD, 1655 AD, and 30,000 BC. Baffeled by the choices, he figures that this is a time machine and puts some thought into where he wants to go.  
+
+# armaanh2-einstein-2018
+After some thought, he chooses to go a 100 years into the future to see how society will progress and change. The car starts making some noises and proceeds to accelerate to 88MPH. Moments later, Einstein looks around and sees he is in Los Angles, CA. In fact, he is at a magazine photoshoot where Taylor Swift and Karlie Kloss are posing for the cover photo for the January 2019 edition of Vogue. Taylor notices Einstein and decides to invite him to a party at Bill Gates' house. He ponders over whether he should take her up on the offer, or go downtown and learn more about modern society.  
+
+# armaanh2-einstein-1655
+A few moments later Einstein chose to go into the past and learn more about history. He reaches 1655 in the middle of London. The people around him look at his contraption in awe. Some start believing he is a sorcerer and within hours of reaching there, Einstein regrets his decision as he is executed for witchcraft. 
+
+# armaanh2-einstein-30000
+A few moments later Einstein chose to go into the prehistoric era and learn more about the begining of the human race. When he gets there, he notices some very short humans, communicating using indiscernable noises. Standing next to them are animals that resemble dogs, but look much more vicious, almost like a wolf but not quite enough. Facinated by the early humans he looks around to observe more. He turns around and standing behind him is a giant woolly mammoth. He tries to run for his life, but unlike his prehistoric peers, he does not know how to deal with the situation and is trampled by the beast. 

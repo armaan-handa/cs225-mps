@@ -1,0 +1,1 @@
+A few moments later Einstein chose to go into the past and learn more about history. He reaches 1655 in the middle of London. The people around him look at his contraption in awe. Some start believing he is a sorcerer and within hours of reaching there, Einstein regrets his decision as he is executed for witchcraft. 
